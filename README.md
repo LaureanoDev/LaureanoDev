@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **laureanoperezlindodev@hotmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/laureano-perezlindodev/)
+- 📄 Know about my experiences https://www.linkedin.com/in/laureano-perezlindodev/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
